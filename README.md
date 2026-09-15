@@ -1,4 +1,4 @@
-## Hi there ,I'm arifoglu - Cyber Security Student
+## Hi there ,I'm arifoglu
 
 ## Connect
 
